@@ -1,0 +1,2 @@
+# traning
+so pra testar
